@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Ritik1024
-- 👀 I’m interested in 
+- 👀 I’m interested in Nothing
 - 🌱 I’m currently learning AI & ML
 - 💞️ I’m looking to collaborate on various projects
-- 📫 reach me at insta @ig_ritikop
+- 📫 Reach me at insta @ig_ritikop
 - 😄 Pronouns: Elaichi
 - ⚡ Fun fact: Not Funny
 
