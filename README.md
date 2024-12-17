@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning AI & ML
 - 💞️ I’m looking to collaborate on various projects
 - 📫 Reach me at insta @ig_ritikop
-- 😄 Pronouns: Elaichi
+
 
 
 <!---
